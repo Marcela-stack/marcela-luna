@@ -10,6 +10,7 @@ Soy Marcela, una apasionada del diseño y la tecnología. Me gustan los producto
 Puedes personalizar este contenido según tus necesidades y preferencias.
 
 Sitios web de referencia
+
 Zappos: Un sitio web de comercio electrónico especializado en calzado y ropa.
 DSW : Un sitio web de comercio electrónico que ofrece una amplia variedad de calzado de diseñador.
 6pm: Un sitio web de comercio electrónico que ofrece calzado, ropa y accesorios a precios competitivos.
