@@ -12,12 +12,19 @@ Puedes personalizar este contenido según tus necesidades y preferencias.
 Sitios web de referencia
 
 Zappos: Un sitio web de comercio electrónico especializado en calzado y ropa.
+
 DSW : Un sitio web de comercio electrónico que ofrece una amplia variedad de calzado de diseñador.
+
 6pm: Un sitio web de comercio electrónico que ofrece calzado, ropa y accesorios a precios competitivos.
+
 Sneakersnstuff: Un sitio web de comercio electrónico especializado en zapatillas de alta calidad y ediciones limitadas.
+
 Categorías de referencia
+
 Calzado de moda: Sitios web que se enfocan en la última moda en calzado, como Net-a-Porter o Farfetch.
+
 Calzado deportivo: Sitios web que se enfocan en calzado deportivo, como Nike o Adidas.
+
 Calzado de lujo: Sitios web que se enfocan en calzado de alta gama, como Gucci o Prada.
 
 
